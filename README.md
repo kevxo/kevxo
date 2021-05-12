@@ -1,4 +1,3 @@
-### Hi there 👋
 
 ## Hello I'm Kevin 👋
 
